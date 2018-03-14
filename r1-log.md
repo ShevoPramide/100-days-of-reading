@@ -4,6 +4,7 @@ My name is Sherif and i commit to #100DaysOfReading
 
 #R1D0
 ===========
+1- Morning: I spend about 2 hours reading several articles ranging from pop science to personal development. I think the most important one this one which discussed the problem of unbordered freedom and freedom as a mindset. I tried to read loudly to improve my english speaking skill and prepare myself to read rapidly. :)
 
 #R1D1
 ===========
